@@ -84,7 +84,7 @@ Within a year after the publication of the "Man without a Country" in the "Atlan
 
 In 1876 I visited Louisiana and Texas, to obtain material for "Philip Nolan's Friends." I obtained there several autographs of the real Phil Nolan,—and the original Spanish record of one of the trials of the survivors of his party,—a trial which resulted in the cruel execution of Ephraim Blackburn, seven years after he was arrested. That whole transaction, wholly ignored by all historians of the United States known to me, is a sad blot on the American administration of the Spanish kings. Their excuse is the confusion of everything in Madrid between 1801 and 1807. The hatred of the Mexican authorities among our frontiersmen of the Southwest is largely due to the dishonor and cruelty of those transactions.
 
-## EDWARD E. HALE.
+## EDWARD EVERETT HALE
 ## THE MAN WITHOUT A COUNTRY
 
 I [Note 1] suppose that very few casual readers of the "New York Herald" of August 13, 1863, observed, [Note 2] in an obscure corner, among the "Deaths," the announcement,—
